@@ -1,12 +1,15 @@
 ![Ramblings front cover](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Ramblings_Frontcover.jpeg)
 
+- Drumstick Bag
 - Gray Brigade
 - Macaroni
+- Ode to George
 - Zeb
 - I Also Craft My Sullen Art
 - Old Dutch
 - Proteus Turns Japanese
 - Rose Gavel
+- Ducks Keep to Themselves
 
 ***
 
