@@ -1,7 +1,7 @@
 ![Ramblings front cover](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Ramblings_Frontcover.jpeg)
 
 - Drumstick Bag
-- Gray Brigade
+- [The Ballad of the Gray Brigade/The Reaper Is Unduly Feared](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Gray%20Brigade.pdf)
 - Macaroni
 - Ode to George
 - Zeb
