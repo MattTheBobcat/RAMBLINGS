@@ -8,7 +8,7 @@
 - [I Also Craft My Sullen Art](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/I%20Also%20Craft%20My%20Sullen%20Art.pdf)
 - [Old Dutch](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Old_Dutch.pdf)
 - [Proteus Turns Japanese](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Proteus%20Turns%20Japanese.pdf)
-- Rose Gavel
+- [Rose Gavel](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Rose%20Gavel.pdf)
 - [Ducks Keep to Themselves](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Ducks%20Keep%20to%20Themselves.pdf)
 
 ***
