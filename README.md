@@ -7,7 +7,7 @@
 - [Zeb](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Zeb.pdf)
 - I Also Craft My Sullen Art
 - [Old Dutch](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Old_Dutch.pdf)
-- Proteus Turns Japanese
+- [Proteus Turns Japanese](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Proteus%20Turns%20Japanese.pdf)
 - Rose Gavel
 - Ducks Keep to Themselves
 
