@@ -4,7 +4,7 @@
 - [The Ballad of the Gray Brigade/The Reaper Is Unduly Feared](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Gray%20Brigade.pdf)
 - [Macaroni](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Macaroni.pdf)
 - Ode to George
-- Zeb
+- [Zeb](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Zeb.pdf)
 - I Also Craft My Sullen Art
 - [Old Dutch](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Old_Dutch.pdf)
 - Proteus Turns Japanese
