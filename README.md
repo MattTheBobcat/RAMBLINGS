@@ -9,7 +9,7 @@
 - [Old Dutch](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Old_Dutch.pdf)
 - [Proteus Turns Japanese](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Proteus%20Turns%20Japanese.pdf)
 - Rose Gavel
-- Ducks Keep to Themselves
+- [Ducks Keep to Themselves](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Ducks%20Keep%20to%20Themselves.pdf)
 
 ***
 
