@@ -14,10 +14,10 @@
 ***
 
 Follow my social media pawprints :)
-- [Twitter](https://www.twitter.com/mistermorethan4) (Active)
-- [Facebook](https://www.facebook.com/mistermorethanfour) (Semi-Active)
-- [YouTube](https://www.youtube.com/channel/UC_s-VK6XwokSy5d3wrHNXOQ) (Work in Progress/Stay Tuned)
-- Snapchat: fifty*seven*watt (Active)
+- [Twitter](https://www.twitter.com/mistermorethan4)
+- [Facebook](https://www.facebook.com/mistermorethanfour)
+- Snapchat: fifty*seven*watt
+- Instagram: @matthewmwaters
 
 ***
 
