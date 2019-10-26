@@ -13,12 +13,4 @@
 
 ***
 
-Follow my social media pawprints :)
-- [Twitter](https://www.twitter.com/mistermorethan4)
-- [Facebook](https://www.facebook.com/mistermorethanfour)
-- Snapchat: @fifty*seven*watt
-- Instagram: @matthewmwaters
-
-***
-
 © 2017-2019 Matthew M. Waters
