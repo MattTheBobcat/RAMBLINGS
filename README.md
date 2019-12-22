@@ -10,7 +10,7 @@
 - [Proteus Turns Japanese](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Proteus%20Turns%20Japanese.pdf)
 - [Rose Gavel](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Rose%20Gavel.pdf)
 - [Ducks Keep to Themselves](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Ducks%20Keep%20to%20Themselves.pdf)
--[Amber Eyes](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Amber%20Eyes.pdf)
+- [Amber Eyes](https://github.com/MattTheBobcat/RAMBLINGS/blob/master/Amber%20Eyes.pdf)
 
 ***
 
